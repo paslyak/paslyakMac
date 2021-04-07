@@ -1,6 +1,3 @@
 # paslyakMac
 wdfjnsdjf
 123123123
-123123
-123123
-123123
